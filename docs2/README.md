@@ -1,4 +1,5 @@
-Thanks for downloading this theme!
+Hi! My name is Den.
+Welcome you on my website.
 
 ## Other Useful Links
 
